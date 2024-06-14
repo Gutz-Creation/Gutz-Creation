@@ -2,7 +2,7 @@
 - 👀 I’m interested in Game Dev and Web Dev
 - 🌱 I’m currently learning Unity, Figma, and Blender
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me (email)sherwin.guteza@gmail.com
+- 📫 How to reach me (email)sherwin.guteza19@gmail.com
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: ...
 
